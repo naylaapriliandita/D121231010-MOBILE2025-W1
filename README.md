@@ -1,1 +1,3 @@
 # D121231010-MOBILE2025-W1
+Nayla Apriliandita
+D121231010
